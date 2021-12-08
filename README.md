@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **malmlof91@hotmail.com**
 
-- ⚡ Fun fact **I love music**
+- ⚡ Fun fact **I love to snowboard and being out in the nature**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
